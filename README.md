@@ -1,1 +1,0 @@
-nao-quebra-a-corrente
